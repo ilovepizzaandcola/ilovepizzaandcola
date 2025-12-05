@@ -37,6 +37,10 @@
                                       'you can find me near docks or in the forsaken area
                                        'w2i
                                         'if you make me uncomfortable i will block you.
+                                         'active mostly on weekends. on weekdays i may be active 5-8PM /GB Time/
+                                         
+                                          
+<img width="1920" height="50" alt="image" src="https://github.com/user-attachments/assets/d54f00d2-cb77-4067-88a1-1a02352d8a90" />
 
 ![devesto-forsaken](https://github.com/user-attachments/assets/ff3d4190-8c88-48af-b7ac-c9942543340e)
 
