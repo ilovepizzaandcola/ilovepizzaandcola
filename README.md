@@ -29,7 +29,7 @@
 
 $$\color{brown}{-feel \ free \ to\ check\ out\ my\ other\ repos.}$$
 
-$$\color{red}{'✷hi \ ,im \ azurark, \ but \ you \ can \ call \ me \ ark \ or \ azu \ if \ its \easier}$$
+$$\color{red}{'✷hi \ ,im \ azurark, \ but \ you \ can \ call \ me \ ark \ or \ azu \ if \ its \ easier}$$
 $$\color{red}{'✷my \ prefered \ pronouns \ are \ they/them \ but \ you \ can \ use \ he/him \ if \ you \ want}$$
 $$\color{red}{'✷PLEASE \ dniuid \ if \ you \ are \ -13 \ or \ +18 \ (alot \ to \ ask, \ i \ know.) \ friends \ not \ included!!}$$
 $$\color{red}{'✷active \ mostly \ on \ weekends. \ on \ weekdays \ i \ may \ be \ active \ 5-8PM \ (london \ time)}$$
