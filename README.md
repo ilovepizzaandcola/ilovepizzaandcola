@@ -1,5 +1,15 @@
 ## '✶ Revenge is sweet, but ice cream is sweeter.✶ '
 ------------------------------------------------------------------
+
+
+
+![happy-sitting](https://github.com/user-attachments/assets/3f64480f-5bc8-467b-be24-5cc71d8617db)
+
+
+
+
+
+
 <img width="50" height="50" alt="image" src="https://github.com/user-attachments/assets/2ee11a63-a582-4c12-aff4-4fb5913eeac9" />
 <img width="50" height="50" alt="image" src="https://github.com/user-attachments/assets/acee2413-bdf7-4dd2-95d2-353cb088f4fa" />
 <img width="50" height="50" alt="image" src="https://github.com/user-attachments/assets/2206058b-8428-4416-80b8-d384f9d52101" />
