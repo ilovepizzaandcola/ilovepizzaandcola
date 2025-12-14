@@ -40,7 +40,6 @@ $$\color{brown}{-feel \ free \ to\ check\ out\ my\ other\ repos.}$$
 
 $$\color{red}{'✷hi \ ,im \ azurark, \ but \ you \ can \ call \ me \ ark \ or \ azu \ if \ its \ easier}$$
 $$\color{red}{'✷my \ prefered \ pronouns \ are \ they/them \ but \ you \ can \ use \ he/him \ if \ you \ want}$$
-$$\color{red}{'✷STRICTLY \ DNI \ if \ you \ are \ -10 \ or \ +18 \ (alot \ to \ ask, \ i \ know.) \ does \ not \ apply \ if \ i \  \ knew \ you \ beforehand,}$$
 $$\color{red}{i \ tend \ to \ be \ rude \ around \ people \ who \ are \ not \ in \ my \ age \ group.}$$
 $$\color{red}{'✷active \ mostly \ on \ weekends. \ on \ weekdays \ i \ may \ be \ active \ 5-8PM \ (london \ time)}$$
 $$\color{red}{'✷w2i, \ if \ i \ dont \ respond \ then \ im \ probably \ offtab, \ busy, \ or \ asleep! \ im \ not \ ignoring \ you \ :c}$$
@@ -48,11 +47,23 @@ $$\color{red}{'✷you \ can \ find \ me \ near \ docks \ or \ in \ the \ forsake
 $$\color{red}{'✷my \ current \ interests \ are \ dod, \ folk \ of \ the \ air \ and \ stranger \ things.}$$
 $$\color{red}{'✷relatively \ dormant \ on \ forsaken, \ crk, \ and \ kaiju \ paradise.}$$
 $$\color{red}{'✷c+h \ freely \ unless \ i \ state \ that \ i \ am \ uncomfortable}$$
-$$\color{red}{'✷DNI \ if \ you \ are \ a \ proshipper \ or \ a \ darkshipper. \ disgusting.}$$
-$$\color{red}{'✷INTERACT \ WITH \ CAUTION \ if \ you \ are \ 11-12.}$$
-$$\color{red}{'✷STRICTLY \ DNI \ if \ you \ are \ a \ zoophile \ or \ a \ map. \ block \ me.}$$
+$$\color{red}{'✷INTERACT \ WITH \ CAUTION \ if \ you \ are \ 12.}$$
 $$\color{red}{'✷PLEASEPLEASEPLEASE \ DO \ NOT \ COPY \ MY \ SKINS}$$
 $$\color{blue}{'✷hi \ simon, \ stop \ stalking \ my \ github \ page}$$
+
+$$\color{green}{' \ - \ DNI \ LIST}$$
+
+$$\color{lightgreen}{'✷STRICTLY \ DNI \ if \ you \ are \ -11 \ or \ +18 \ (alot \ to \ ask, \ i \ know.) \ does \ not \ apply \ if \ i \  \ knew \ you \ beforehand,}$$
+$$\color{lightgreen}{i \ tend \ to \ be \ rude \ to \ people \ who \ are \ not \ in \ my \ age \ group.}$$
+$$\color{lightgreen}{'✷DNI \ if \ you \ are \ a \ proshipper \ or \ a \ darkshipper. \ disgusting.}$$
+$$\color{lightgreen}{'✷STRICTLY \ DNI \ IF \ YOU \ ARE \ A \ RACIST, \ ALBEIST, \ NEO-NAZI, \ HOMOPHOBE, \ TRANSPHOBE, \ ZOOPHILE \ OR \ A \ MAP!!}$$
+$$\color{green}{' \ - \ INTERACT \ WITH \ EXTREME \ CAUTION \ if \ you \ are \ in \ the \ following \ fandoms:}$$
+$$\color{lightgreen}{'✷TCOAAL}$$
+$$\color{lightgreen}{'✷warrior \ cats}$$
+$$\color{lightgreen}{'✷hazbin \ hotel..}$$
+$$\color{lightgreen}{'✷dandy's \ world}$$
+
+
 
 $$\color{grey}{/sillies/}$$
 
