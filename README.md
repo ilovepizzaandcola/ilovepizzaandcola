@@ -83,7 +83,6 @@ $$\color{orange}{⚝catte \ (x \ shade \ so \ real) \ /KP/}$$
 $$\color{lightyellow}{⚝looey \  /DW/}$$
 $$\color{lightgreen}{⚝pursuer \ /DOD}$$
 $$\color{darkred}{⚝the \ hollow \ /TT/ \ (ball \ knowledge \ required)}$$
-$$\color{darkorange}{adobo \ (TRUST) \ /pinoy/}$$
 
 
 <img width="1920" height="50" alt="image" src="https://github.com/user-attachments/assets/d54f00d2-cb77-4067-88a1-1a02352d8a90" />
