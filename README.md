@@ -36,7 +36,7 @@
 $$\color{yellow}{-HEADS \ UP!! }$$
 ⚠️
 
--This repository looks **HORRENDOUS** when viewed on a phone! 
+-if you sit under or anywhere remotely close to the proship tree? **dni.**
 
 <img width="1920" height="50" alt="image" src="https://github.com/user-attachments/assets/d54f00d2-cb77-4067-88a1-1a02352d8a90" />
 
