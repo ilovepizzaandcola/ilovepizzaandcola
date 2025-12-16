@@ -52,7 +52,7 @@ $$\color{red}{'✷w2i, \ if \ i \ dont \ respond \ then \ im \ probably \ offtab
 $$\color{red}{'✷you \ can \ find \ me \ near \ docks \ or \ in \ the \ forsaken \ area}$$
 $$\color{red}{'✷my \ current \ interests \ are \ dod, \ folk \ of \ the \ air \ and \ stranger \ things.}$$
 $$\color{red}{'✷relatively \ dormant \ on \ forsaken, \ crk, \ and \ kaiju \ paradise.}$$
-$$\color{red}{'✷c+h \ freely \ unless \ i \ state \ that \ i \ am \ uncomfortable}$$
+$$\color{red}{'✷c+h \ freely \ unless \ i \ state \ that \ i \ am \ uncomfortable \ (rarely!)}$$
 $$\color{red}{'✷INTERACT \ WITH \ CAUTION \ if \ you \ are \ 12.}$$
 $$\color{red}{'✷PLEASEPLEASEPLEASE \ DO \ NOT \ COPY \ MY \ SKINS}$$
 $$\color{red}{'✷DO \ NOT \ COVER \ ME! \ it's \ not  \ like \ i \ have \ a \ discomfort \ or \ something,}$$
