@@ -10,6 +10,17 @@
 $$\color{darkred}{-'they \ drink \ us. \ then \ they \ spray \ us, \ like \ fertilizer.}$$
 $$\color{darkred}{drink \ us \ and \ then \ they \ spit \ us \ out \ all \ over \ the \ goddamn \ red \ weeds.'}$$
 
+<img src="https://github.com/user-attachments/assets/5b4af0ef-f976-43f8-a165-bac5b3714d5c" alt="gif" width="150px" />
+<img src="https://github.com/user-attachments/assets/4157bc68-8e65-4aee-8324-e256ef044055" alt="gif" width="150px" />
+<img src="https://github.com/user-attachments/assets/4d7b64c1-88c8-43b3-a19d-8f4d85d59412" alt="gif" width="150px" />
+<img src="https://github.com/user-attachments/assets/f856c075-cdce-42c1-88d0-74d819d035c4" alt="gif" width="150px" />
+<img src="https://github.com/user-attachments/assets/c25289ea-57e7-4090-b92a-4152ad47e81e" alt="gif" width="150px" />
+
+
+<img width="1920" height="50" alt="image" src="https://github.com/user-attachments/assets/d54f00d2-cb77-4067-88a1-1a02352d8a90" />
+
+
+
 <img width="50" height="50" alt="image" src="https://github.com/user-attachments/assets/2ee11a63-a582-4c12-aff4-4fb5913eeac9" />
 <img width="50" height="50" alt="image" src="https://github.com/user-attachments/assets/acee2413-bdf7-4dd2-95d2-353cb088f4fa" />
 <img width="50" height="50" alt="image" src="https://github.com/user-attachments/assets/2206058b-8428-4416-80b8-d384f9d52101" />
