@@ -7,8 +7,14 @@
 
 -----------------------------
 
-$$\color{darkred}{-'they \ drink \ us. \ then \ they \ spray \ us, \ like \ fertilizer.}$$
-$$\color{darkred}{drink \ us \ and \ then \ they \ spit \ us \ out \ all \ over \ the \ goddamn \ red \ weeds.'}$$
+$$\color{darkred}{-' From \ the \ moment \ the \ invaders \ arrived, \ breathed \ our \ air,}$$
+$$\color{darkred}{ate \ and \ drank, \ they \ were \ doomed. \ They \ were \ undone, \ destroyed,}$$ 
+$$\color{darkred}{after \ all \ of \ man's \ weapons \ and \ devices \ had \ failed, \ by \ the \ tiniest \ creatures}$$ 
+$$\color{darkred}{that \ God \ in \ his \ wisdom \ put \ upon \ this \ Earth. \ By \ the \ toll \ of \ a \ billion \ deaths,}$$
+$$\color{darkred}{man \ had \ earned \ his \ immunity, \ his \ right \ to \ survive \ among \ this \ planet's \ infinite \ organisms.}$$
+$$\color{darkred}{And \ that \ right \ is \ ours \ against \ all \ challenges. \ For \ neither \ do \ men}$$ 
+$$\color{darkred}{live \ nor \ die \ in \ vain.}$$
+
 
 <img src="https://github.com/user-attachments/assets/5b4af0ef-f976-43f8-a165-bac5b3714d5c" alt="gif" width="150px" />
 <img src="https://github.com/user-attachments/assets/4157bc68-8e65-4aee-8324-e256ef044055" alt="gif" width="150px" />
