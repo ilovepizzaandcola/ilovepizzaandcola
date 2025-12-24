@@ -81,6 +81,9 @@ $$\color{lightgreen}{'✷STRICTLY \ DNI \ if \ you \ are \ -11 \ or \ +18 \ (alo
 $$\color{lightgreen}{i \ tend \ to \ be \ rude \ to \ people \ who \ are \ not \ in \ my \ age \ group.}$$
 $$\color{lightgreen}{'✷DNI \ if \ you \ are \ a \ proshipper \ or \ a \ darkshipper. \ disgusting.}$$
 $$\color{lightgreen}{'✷STRICTLY \ DNI \ IF \ YOU \ ARE \ A \ RACIST, \ ALBEIST, \ NEO-NAZI, \ HOMOPHOBE, \ TRANSPHOBE, \ ZOOPHILE \ OR \ A \ MAP!!}$$
+$$\color{lightgreen}{'✷trump \ justifier/supporter. \ i \ dont \ want \ to \ hear \ all \ of \ that \ shit.}$$
+$$\color{lightgreen}{'✷short \ tempered \ people}$$
+$$\color{lightgreen}{'✷people \ who \ talk \ too \ much \ or \ flex \ about \ their \ personal \ life. \ dont.}$$
 $$\color{green}{' \ - \ INTERACT \ WITH \ VERY \ EXTREME \ CAUTION \ if \ you \ are \ in \ the \ following \ fandoms:}$$
 $$\color{lightgreen}{'✷TCOAAL}$$
 $$\color{lightgreen}{'✷warrior \ cats}$$
@@ -90,7 +93,7 @@ $$\color{lightgreen}{'✷sprunki \ ...}$$
 $$\color{lightgreen}{'✷piggy}$$
 $$\color{lightgreen}{'✷beastars \ ??}$$
 $$\color{lightgreen}{'✷meleeniacs \ .}$$
-
+$$\color{green}{[ \ - \ I \ AM \ BEING \ INCREDIBLY \ LENIENT. \ IF \ YOU \ MENTION \ OR \ REFERENCE \ THESE \ FANDOMS \ I \ **WILL** \  BLOCK \ YOU. \ - \ ]}$$
 
 
 $$\color{grey}{/sillies/}$$
