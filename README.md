@@ -65,6 +65,7 @@ $$\color{red}{'✷i \ edit \ my \ readme \ often \ so \ expect \ things \ to \ c
 $$\color{red}{'✷c+h \ freely \ unless \ i \ state \ that \ i \ am \ uncomfortable \ (rarely!)}$$
 $$\color{red}{'✷HEAVY \ TOUCH \ COMFORT \ so \ im \ open \ to \ cuddles \ and \ kisses!}$$
 $$\color{red}{'✷INTERACT \ WITH \ CAUTION \ if \ you \ are \ 12.}$$
+$$\color{red}{'✷i \ do \ NOT \ tolerate \ discrimination \ or \ criticism \ of \ my \ ocs. \ if \ you \ are \ joking, \ PLEASE \ use \ tonetags..\ it \ helps.}$$
 $$\color{red}{'✷PLEASEPLEASEPLEASE \ DO \ NOT \ COPY \ MY \ SKINS}$$
 $$\color{red}{'✷i \ like \ to \ convey \ my \ current \ feelings \ by \ changing \ my \ face, \ so \ expect \ me \ to \ do \ just \ that!}$$
 $$\color{red}{'✷DO \ NOT \ COVER \ ME! \ it's \ not  \ like \ i \ have \ a \ discomfort \ or \ something,}$$
