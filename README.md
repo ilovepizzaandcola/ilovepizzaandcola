@@ -80,6 +80,7 @@ $$\color{lightgreen}{'✷STRICTLY \ DNI \ IF \ YOU \ ARE \ A \ RACIST, \ ALBEIST
 $$\color{lightgreen}{'✷trump \ justifiers/supporters. \ i \ dont \ want \ to \ hear \ all \ of \ that \ shit.}$$
 $$\color{lightgreen}{'✷short \ tempered \ people.. \ sorry. \ not \ willing \ to \ deal \ with \ you}$$
 $$\color{lightgreen}{'✷people \ who \ talk \ too \ much \ or \ flex \ about \ their \ personal \ life. \ dont.}$$
+$$\color{lightgreen}{'✷PEOPLE \ WHO \ TALK \ ABOUT \ BLOX \ FRUITS, \ SLAP \ BATTLES \ OR \ TSB. \ please?}$$
 $$\color{green}{' \ - \ INTERACT \ WITH \ VERY \ EXTREME \ CAUTION \ if \ you \ are \ in \ the \ following \ fandoms:}$$
 $$\color{lightgreen}{'✷TCOAAL}$$
 $$\color{lightgreen}{'✷warrior \ cats}$$
