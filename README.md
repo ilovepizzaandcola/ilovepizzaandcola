@@ -116,4 +116,4 @@ $$\color{darkred}{⚝the \ hollow \ /TT/ \ (ball \ knowledge \ required)}$$
 <img width="1920" height="50" alt="image" src="https://github.com/user-attachments/assets/d54f00d2-cb77-4067-88a1-1a02352d8a90" />
 
 
-
+NOTE: - it's criminal how i **dont** have a strawpage, right? well fuck. i don't know how to code and im never planning to. 
