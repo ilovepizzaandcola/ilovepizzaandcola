@@ -59,8 +59,9 @@ $$\color{red}{'✷my \ prefered \ pronouns \ are \ they/them \ but \ you \ can \
 $$\color{red}{'✷active \ mostly \ on \ weekends. \ on \ weekdays \ i \ may \ be \ active \ 5-8PM \ (london \ time)}$$
 $$\color{red}{'✷w2i, \ if \ i \ dont \ respond \ then \ im \ probably \ offtab, \ busy, \ or \ asleep! \ im \ not \ ignoring \ you \ :c}$$
 $$\color{red}{'✷you \ can \ find \ me \ near \ docks \ or \ in \ the \ forsaken \ area}$$
-$$\color{red}{'✷my \ current \ interests \ are \ dod, \ folk \ of \ the \ air \ and \ stranger \ things.}$$
-$$\color{red}{'✷relatively \ dormant \ on \ forsaken, \ crk, \ and \ kaiju \ paradise.}$$
+$$\color{red}{'✷my \ current \ interests \ are \ dod, \ folk \ of \ the \ air, \ kaiju \ paradise \ and \ stranger \ things.}$$
+$$\color{red}{'✷relatively \ dormant \ on \ forsaken, \ crk \ and \ war \ of \ the \ worlds.}$$
+$$\color{red}{'✷VERY \ VERY \ DORMANT \ on \ pixonic's \ war \ robots}$$
 $$\color{red}{'✷i \ edit \ my \ readme \ often \ so \ expect \ things \ to \ change!}$$
 $$\color{red}{'✷c+h \ freely \ unless \ i \ state \ that \ i \ am \ uncomfortable \ (rarely!)}$$
 $$\color{red}{'✷HEAVY \ TOUCH \ COMFORT \ so \ im \ open \ to \ cuddles \ and \ kisses!}$$
