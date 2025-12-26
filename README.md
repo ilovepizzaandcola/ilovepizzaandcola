@@ -70,6 +70,7 @@ $$\color{red}{'✷c+h \ freely \ unless \ i \ state \ that \ i \ am \ uncomforta
 $$\color{red}{'✷HEAVY \ TOUCH \ COMFORT \ so \ im \ open \ to \ cuddles!}$$
 $$\color{red}{'✷INTERACT \ WITH \ CAUTION \ if \ you \ are \ 12.}$$
 $$\color{red}{'✷i \ do \ NOT \ tolerate \ discrimination \ or \ criticism \ of \ my \ ocs. \ if \ you \ are \ joking, \ PLEASE \ use \ tonetags..\ it \ helps.}$$
+$$\color{red}{EVEN \ THEN, \ i \ would \ prefer \ you \ dont \ joke \ about \ them.}$$
 $$\color{red}{'✷PLEASEPLEASEPLEASE \ DO \ NOT \ COPY \ MY \ SKINS}$$
 $$\color{red}{'✷i \ like \ to \ convey \ my \ current \ feelings \ by \ changing \ my \ face, \ so \ expect \ me \ to \ do \ just \ that!}$$
 $$\color{red}{'✷DO \ NOT \ COVER \ ME! \ it's \ not  \ like \ i \ have \ a \ discomfort \ or \ something,}$$
@@ -89,6 +90,7 @@ $$\color{lightgreen}{'✷PEOPLE \ WHO \ TALK \ ABOUT \ BLOX \ FRUITS, \ SLAP \ B
 $$\color{green}{' \ - \ INTERACT \ WITH \ VERY \ EXTREME \ CAUTION \ if \ you \ are \ in \ the \ following \ fandoms:}$$
 $$\color{lightgreen}{'✷TCOAAL}$$
 $$\color{lightgreen}{'✷warrior \ cats}$$
+$$\color{lightgreen}{'✷fnaf}$$
 $$\color{lightgreen}{'✷hazbin \ hotel..}$$
 $$\color{lightgreen}{'✷dandy's \ world}$$
 $$\color{lightgreen}{'✷sprunki \ ...}$$
