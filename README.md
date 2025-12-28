@@ -96,7 +96,6 @@ $$\color{lightgreen}{'✷dandy's \ world}$$
 $$\color{lightgreen}{'✷sprunki \ ...}$$
 $$\color{lightgreen}{'✷piggy}$$
 $$\color{lightgreen}{'✷beastars \ ??}$$
-$$\color{lightgreen}{'✷THOSE \ SPECIFIC \ g&b \ fans.}$$
 $$\color{lightgreen}{'✷meleeniacs \ .}$$
 $$\color{green}{[ \ - \ I \ AM \ BEING \ INCREDIBLY \ LENIENT. \ IF \ YOU \ MENTION \ OR \ REFERENCE \ THESE \ FANDOMS \ I \ **WILL** \  BLOCK \ YOU. \ - \ ]}$$
 $$\color{green}{- \ ( \ this \ iwvec \ list \ does \ not \ count \ if \ you \ are \ a \ friend, \ of \ course. \ ) \ -}$$
