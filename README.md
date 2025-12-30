@@ -97,7 +97,7 @@ $$\color{lightgreen}{'✷sprunki \ ...}$$
 $$\color{lightgreen}{'✷piggy}$$
 $$\color{lightgreen}{'✷beastars \ ??}$$
 $$\color{lightgreen}{'✷meleeniacs \ .}$$
-$$\color{green}{[ \ - \ I \ AM \ BEING \ INCREDIBLY \ LENIENT. \ IF \ YOU \ MENTION \ OR \ REFERENCE \ THESE \ FANDOMS \ I \ **WILL** \  BLOCK \ YOU \ OR \ JUST \ IGNORE \ YOU - \ ]}$$
+$$\color{green}{[ \ - \ I \ AM \ BEING \ INCREDIBLY \ LENIENT. \ IF \ YOU \ MENTION \ OR \ REFERENCE \ THESE \ FANDOMS \ I \ WILL \ IGNORE \ YOU - \ ]}$$
 $$\color{green}{- \ ( \ this \ iwvec \ list \ does \ not \ count \ if \ you \ are \ a \ friend, \ of \ course. \ ) \ -}$$
 
 $$\color{grey}{/sillies/}$$
