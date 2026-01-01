@@ -31,7 +31,7 @@ $$\color{brown}{' \ ✦ \ - \ please \ DONT \ cover \ me, \ it \ isnt \ like \ i
 $$\color{brown}{i \ just,. \ REALLY \ LIKE \ looking \ at \ myself \ and \ my \ pony}$$
 $$\color{brown}{' \ ✦ \ - \ i \ do \ NOT \ tolerate \ criticism \ or \ discrimination \ of \ my \ ponies \ IN \ ANY \ WAY.}$$
 $$\color{brown}{use \ tonetags \ if \ joking, \ please.,. \ (WOULD \ STILL \ PREFER \ YOU \ DONT \ JOKE \ AROUND. \ SEE \ WHAT \ HAPPENS.)}$$
-$$\color{brown}{' \ ✦ \ - \ ASK \ FOR \ INSPIRATION \ if \ wishing \ to \ 'borrow \ details \ from \ my \ ocs. \ dont \ steal., \ be \ decent.}$$
+$$\color{brown}{' \ ✦ \ - \ ASK \ FOR \ INSPIRATION \ if \ willing \ to \ 'borrow \ details \ from \ my \ ocs. \ dont \ steal., \ be \ decent.}$$
 
 
 <img width="1030" height="20" alt="image" src="https://github.com/user-attachments/assets/b1ce7a23-4f91-4527-bb72-9beff4899629" />
@@ -42,11 +42,13 @@ $$\color{darkred}{' \ [] \ [] \ DNI \ [] \ [] \ ' }$$
 
 $$\color{gray}{' \ ✦ \ - \ strictly \ dni \ if \ you \ are \ 12 \ and \ under \ OR  \ 18 \ and \ over.}$$
 $$\color{gray}{' \ ✦ \ - \ DNI \ if \ you \ are \ either \ or \ BOTH: \ a \ proshipper \ and/or \ darkshipper.}$$
-$$\color{gray}{' \ ✦ \ - \ DNI \ DNI \ IF \ YOU \ ARE \ A HOMOPHOBE, \ TRANSPHOBE, \ ALBEIST, \ NEO-NAZI, \ RACIST, \ ZOO \ OR \ MAP.}$$
+$$\color{gray}{' \ ✦ \ - \ DNI \ DNI \ IF \ YOU \ ARE \ A \ HOMOPHOBE, \ TRANSPHOBE, \ ALBEIST, \ NEO-NAZI, \ RACIST, \ ZOO \ OR \ MAP.}$$
 $$\color{gray}{' \ ✦ \ - \ dni \ if \ you \ are \ a \ trump \ supporter/justifier \ ... \ ., \ need \ i \ say \ more?}$$
 $$\color{gray}{' \ ✦ \ - \ dni \ if you \ talk \ SO \ EXCESSIVELY \ MUCH \ about \ your \ personal \ life. \ dont \ flex \ either, \ fuck \ you}$$
 $$\color{gray}{' \ ✦ \ - \ dni \ if \ youve \ got \ a \ short \ temper, \ sorry.,}$$
 $$\color{gray}{' \ ✦ \ - \ dni \ if \ you \ talk \ about \ tsb, \ slap \ battles \ or \ bloxfruits.. \ PleASe}$$
+$$\color{gray}{' \ ✦ \ - \ dni \ respectively \ if \ you \ start \ drama \ because \ i \ want \ NONE \ OF \ IT. \ ok?., \ ...\}$$
+$$\color{gray}{' \ ✦ \ - \ dont \ fucking \ touch \ me \ if \ you \ like \ fluffy \ pony \ abuse.}$$
 
 <img width="1030" height="20" alt="image" src="https://github.com/user-attachments/assets/b1ce7a23-4f91-4527-bb72-9beff4899629" />
 
@@ -60,10 +62,10 @@ $$\color{gray}{' \ ✦ \ - \ warrior cats.}$$
 $$\color{gray}{' \ ✦ \ - \ beastars??}$$
 $$\color{gray}{' \ ✦ \ - \ fnaf}$$
 $$\color{gray}{' \ ✦ \ - \ beserk.}$$
-$$\color{gray}{' \ ✦ \ - \ evangelion \ (ramiel \ fans \ excluded \ because)}$$
+$$\color{gray}{' \ ✦ \ - \ tpot, \ bfdi, \ that \ stuff.}$$
 $$\color{darkred}{- \ ~ \ <> \ ~ \ -}$$
 $$\color{gray}{' \ ✦ \ - \ iwvec \ if \ you \ find \ digital \ humour \ funny..}$$
-$$\color{gray}{' \ ✦ \ - \ people \ who \ like \ bfdi, \ tpot \ and \ that \ stuff}$$
+$$\color{gray}{' \ ✦ \ - \ people \ 
 $$\color{gray}{' \ ✦ \ - \ raid \ joiners}$$
 
 <img width="1030" height="20" alt="image" src="https://github.com/user-attachments/assets/b1ce7a23-4f91-4527-bb72-9beff4899629" />
