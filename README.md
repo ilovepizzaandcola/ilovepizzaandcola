@@ -28,9 +28,9 @@ $$\color{brown}{' \ ✦ \ - \ please \ DONT \ cover \ me, \ it \ isnt \ like \ i
 $$\color{brown}{i \ just,. \ REALLY \ LIKE \ looking \ at \ myself \ and \ my \ pony}$$
 $$\color{brown}{' \ ✦ \ - \ i \ do \ NOT \ tolerate \ criticism \ or \ discrimination \ of \ my \ ponies \ IN \ ANY \ WAY.}$$
 $$\color{brown}{use \ tonetags \ if \ joking, \ please.,. \ (WOULD \ STILL \ PREFER \ YOU \ DONT \ JOKE \ AROUND. \ SEE \ WHAT \ HAPPENS.)}$$
-$$\color{brown}{' \ ✦ \ - \ ASK \ FOR \ INSPIRATION \ if \ wishing \ to \ 'borrow \ details \ from \ my ocs. \ dont \ steal., \ be \ decent.}$$
-
-
+$$\color{brown}{' \ ✦ \ - \ ASK \ FOR \ INSPIRATION \ if \ wishing \ to \ 'borrow \ details \ from \ my \ ocs. \ dont \ steal., \ be \ decent.}$$
+---
+$$\color{purple}{' \ ✦ \ - \ hi}$$
 
 
 
