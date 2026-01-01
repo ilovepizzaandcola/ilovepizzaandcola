@@ -65,7 +65,8 @@ $$\color{gray}{' \ ✦ \ - \ beserk.}$$
 $$\color{gray}{' \ ✦ \ - \ tpot, \ bfdi, \ that \ stuff.}$$
 $$\color{darkred}{- \ ~ \ <> \ ~ \ -}$$
 $$\color{gray}{' \ ✦ \ - \ iwvec \ if \ you \ find \ digital \ humour \ funny..}$$
-$$\color{gray}{' \ ✦ \ - \ people \ 
+$$\color{gray}{' \ ✦ \ - \ people \ who \ like \ terrible \ mouse \ or \ all \ of \ those \ horrifying \ gory \ animal \ animations..}$$
+$$\color{gray}{mind \ what \ pony \ you \ wear \ when \ you \ talk \ to \ me.}$$
 $$\color{gray}{' \ ✦ \ - \ raid \ joiners}$$
 
 <img width="1030" height="20" alt="image" src="https://github.com/user-attachments/assets/b1ce7a23-4f91-4527-bb72-9beff4899629" />
