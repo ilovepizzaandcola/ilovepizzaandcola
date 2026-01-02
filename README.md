@@ -23,7 +23,7 @@ $$\color{brown}{' \ ✦ \ - \ active \ mostly \ on \ weekends. \ on \ weekdays, 
 $$\color{brown}{' \ ✦ \ - \ W2I \ always! \ if \ i \ dont \ respond \ then \ im \ either \ offtab \ busy \ or \ just \ ignoring \ youse \ (ONLY \ FOR \ GOOD \ REASONS)}$$
 $$\color{brown}{' \ ✦ \ - \ i \ commonly \ hang \ out \ at \ docks, \ barely \ in \ the \ forsaken \ area \ anymore}$$
 $$\color{brown}{' \ ✦ \ - \ i \ have \ a \ liking \ for \ roleplays, \ so \ expect \ me \ to \ be \ in \ infections, \ labs, \ the \ bunch.}$$
-$$\color{brown}{' \ ✦ \ - \ i \ am \ currently \ interested \ in \ kaiju \ paradise, \ young \ sheldon, \ grey's \ anatomy \ and \ stranger \ things.}$$
+$$\color{brown}{' \ ✦ \ - \ i \ am \ currently \ interested \ in \ kaiju \ paradise, \ young \ sheldon \ and \ stranger \ things.}$$
 $$\color{brown}{' \ ✦ \ - \ relatively \ dormant \ on \ wotw, \ dod, \ crk \ and \ shin \ godzilla}$$
 $$\color{brown}{' \ ✦ \ - \ i \ have \ a \ VERY \ HEAVY \ touch \ comfort, \ so \ im \ open \ to \ cuddles !}$$
 $$\color{brown}{' \ ✦ \ - \ i \ like \ to \ convey \ current \ emotions \ by \ changing \ my \ pony's \ expression}$$
