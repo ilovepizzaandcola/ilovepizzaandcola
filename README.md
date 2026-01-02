@@ -21,7 +21,7 @@ $$\color{brown}{' \ ✦ \ - \ im \ azurark! \ you \ can \ call \ me \ ark \ or \
 $$\color{brown}{' \ ✦ \ - \ my \ \ prefered \ pronouns \ are \ they \ them \ but \ use \ male \ pronouns \ if \ you \ want}$$
 $$\color{brown}{' \ ✦ \ - \ active \ mostly \ on \ weekends. \ on \ weekdays, \ i \ may \ be \ on \ 5pm \ through \ 9pm.\}$$
 $$\color{brown}{' \ ✦ \ - \ W2I \ always! \ if \ i \ dont \ respond \ then \ im \ either \ offtab \ busy \ or \ just \ ignoring \ youse \ (ONLY \ FOR \ GOOD \ REASONS)}$$
-$$\color{brown}{' \ ✦ \ - \ i \ commonly \ hang \ out \ at \ docks, \ barely \ in \ the \ forsaken \ area \ anymore}$$
+$$\color{brown}{' \ ✦ \ - \ i \ commonly \ hang \ out \ at \ docks or near docks}$$
 $$\color{brown}{' \ ✦ \ - \ i \ have \ a \ liking \ for \ roleplays, \ so \ expect \ me \ to \ be \ in \ infections, \ labs, \ the \ bunch.}$$
 $$\color{brown}{' \ ✦ \ - \ i \ am \ currently \ interested \ in \ kaiju \ paradise, \ young \ sheldon \ and \ stranger \ things.}$$
 $$\color{brown}{' \ ✦ \ - \ relatively \ dormant \ on \ wotw, \ dod, \ crk \ and \ shin \ godzilla}$$
@@ -41,7 +41,7 @@ $$\color{darkred}{' \ [] \ [] \ DNI \ [] \ [] \ ' }$$
 
 
 $$\color{gray}{' \ ✦ \ - \ strictly \ dni \ if \ you \ are \ 12 \ and \ under \ OR  \ 18 \ and \ over.}$$
-$$\color{gray}{' \ ✦ \ - \ DNI \ if \ you \ are \ either \ or \ BOTH: \ a \ proshipper \ and/or \ darkshipper.}$$
+$$\color{gray}{' \ ✦ \ - \ DNI \ if \ you \ are \ either \ or \ BOTH: \ a \ proshipper \ and/or \ darkshipper. \ i \ block \ EVERYONE \ under \ the \ protree.}$$
 $$\color{gray}{' \ ✦ \ - \ DNI \ DNI \ IF \ YOU \ ARE \ A \ HOMOPHOBE, \ TRANSPHOBE, \ ALBEIST, \ NEO-NAZI, \ RACIST, \ ZOO \ OR \ MAP.}$$
 $$\color{gray}{' \ ✦ \ - \ dni \ if \ you \ are \ a \ trump \ supporter/justifier \ ... \ ., \ need \ i \ say \ more?}$$
 $$\color{gray}{' \ ✦ \ - \ dni \ if you \ talk \ SO \ EXCESSIVELY \ MUCH \ about \ your \ personal \ life. \ dont \ flex \ either, \ fuck \ you}$$
