@@ -31,7 +31,7 @@ $$\color{brown}{' \ ✦ \ - \ please \ DONT \ cover \ me, \ it \ isnt \ like \ i
 $$\color{brown}{i \ just,. \ REALLY \ LIKE \ looking \ at \ myself \ and \ my \ pony}$$
 $$\color{brown}{' \ ✦ \ - \ i \ do \ NOT \ tolerate \ criticism \ or \ discrimination \ of \ my \ ponies \ IN \ ANY \ WAY.}$$
 $$\color{brown}{use \ tonetags \ if \ joking, \ please.,. \ (WOULD \ STILL \ PREFER \ YOU \ DONT \ JOKE \ AROUND. \ SEE \ WHAT \ HAPPENS.)}$$
-$$\color{brown}{' \ ✦ \ - \ ASK \ FOR \ INSPIRATION \ if \ willing \ to \ 'borrow \ details \ from \ my \ ocs. \ dont \ steal., \ be \ decent.}$$
+$$\color{brown}{' \ ✦ \ - \ ASK \ FOR \ INSPIRATION \ if \ willing \ to \ 'borrow' \ details \ from \ my \ ocs. \ dont \ steal., \ be \ decent.}$$
 
 
 <img width="1030" height="20" alt="image" src="https://github.com/user-attachments/assets/b1ce7a23-4f91-4527-bb72-9beff4899629" />
